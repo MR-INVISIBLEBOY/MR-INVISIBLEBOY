@@ -1,5 +1,15 @@
-![main](https://user-images.githubusercontent.com/101985120/160657712-4f2e7d3e-91d9-42e0-8cd3-7faf6d66e6a0.jpg)
-![photo_2022-03-23_08-09-09](https://user-images.githubusercontent.com/101985120/160657730-394acdf1-2148-4878-b31d-0f57780cb91c.jpg)
+<h2 align="center"><b> ⠐💥💫Personal ★༒✞︎©༒☠️ ᴍʀ ✘ ɪɴᴠɪ🅢ɪʙʟᴇ】Information💫💥 ⠐ </b></h2>
+
+<p align='Middle'><a href='https://t.me/MR-INVISIBLEBOY'><img src='https://te.legra.ph/file/996746ae9b0fa48bcbec3.jpg' width='750"'></a></p>
+
+<p align="center">
+  <img src="https://readme-typing-svg.herokuapp.com?color=F77247&width=420&lines=𝑨+𝑷𝒂𝒔𝒔𝒊𝒐𝒏𝒂𝒕𝒆+Bot~𝒅𝒆𝒗𝒆𝒍𝒐𝒑𝒆𝒓+𝒇𝒓𝒐𝒎+MAHARASTRA%E2%9C%8C%EF%B8%8F;PHP%2C+Linux%2C+Hack%2C+Telethon%2C+Pyrogram%2C+Python%2C+Java%2C+Linux%E2%9D%A4%EF%B8%8F">
+</p> 
+<br>
+
+
+
+
 - 👋 Hi, I’m @MR-INVISIBLEBOY
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
