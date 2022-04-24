@@ -19,7 +19,7 @@ Here are some ideas to get you started:
 <p align='Middle'><a href='https://t.me/MRINVISIBLE_OFFICIAL'><img src='https://te.legra.ph/file/8b012f55fc4238151d169.jpg' width='750"'></a></p>
 <p align="center">
  
-  <img src="https://readme-typing-svg.herokuapp.com?color=F77247&width=420&lines=𝑨+𝑷𝒂𝒔𝒔𝒊𝒐𝒏𝒂𝒕𝒆+𝒅𝒆𝒗𝒆𝒍𝒐𝒑𝒆𝒓+𝒇𝒓𝒐𝒎+Rajasthan%E2%9C%8C%EF%B8%8F;PHP%2C+Linux%2C+Hack%2C+Telethon%2C+Pyrogram%2C+Python%2C+Java%2C+Linux%E2%9D%A4%EF%B8%8F">
+  <img src="https://readme-typing-svg.herokuapp.com?color=F77247&width=420&lines=𝑨+𝑷𝒂𝒔𝒔𝒊𝒐𝒏𝒂𝒕𝒆+𝒅𝒆𝒗𝒆𝒍𝒐𝒑𝒆𝒓+𝒇𝒓𝒐𝒎+MAHARASTRA%E2%9C%8C%EF%B8%8F;PHP%2C+Linux%2C+Hack%2C+Telethon%2C+Pyrogram%2C+Python%2C+Java%2C+Linux%E2%9D%A4%EF%B8%8F">
 </p> 
 <br>
 <img src="https://readme-typing-svg.herokuapp.com?color=F77247&width=420&lines=AJAY+PAGRUT+Hacker+DarkWeb+%E2%9C%8C%EF%B8%8F%2C+%2C+%2C+%2C+%2C+%+%2C+%E2%9D%A4%EF%B8%8F"
@@ -130,7 +130,7 @@ OP
 ┗━━━━━━━━━━━━━━━━━━━ ━━━━━━━━━━━
 
 ========={  MR-INVISIBLEBOY   IS     OPBOY]================
-![23828996 - Copy](https://user-images.githubusercontent.com/87700009/132297993-586a4f2d-741c-4eff-8f43-9d5ce8978127.jpg)
+![23828996 - Copy](https://telegra.ph/file/9d53c89703a53eff4b6a6.jpg)
  ![image](https://user-images.githubusercontent.com/87700009/133559934-d17c2c74-3507-43f7-8fa5-acf2a423993e.png)
  ![image](https://user-images.githubusercontent.com/87700009/133559990-894ac3fb-c7dd-4124-b9f5-8e8cb4ac936a.png)
  ![image](https://user-images.githubusercontent.com/87700009/133560780-0b124404-c06b-4588-8fd7-8a252b865338.png)
